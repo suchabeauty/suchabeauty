@@ -15,9 +15,15 @@ dni ⪼ 18+ , disgusting people , immature folks
 ![IMAGE ALT TEXT HERE](https://github.com/suchabeauty/pictures/blob/7f99596cd15fe4e02a2dc3ddd4f13a71ee87cd83/536764x7k3dpib5i.gif)
 
 ⠀⠀⠀⣠⣤⣀⠀⠀⠀⠀⠀⠀⠀⣀⣤⣄⠀⠀⠀
+
 ⠀⢀⣼⣋⣀⣉⣛⣦⣄⣀⣠⣴⣟⣉⣀⣘⣧⣀⠀
+
 ⠀⢸⡉⠉⠉⠉⠉⣿⠉⠛⠉⣿⠉⠉⠉⠉⠉⣿⠀
+
 ⠀⠸⡇⠀⠀⠘⢋⣽⣷⣦⣾⣯⡙⠛⠀⠀⢸⡇⠀
+
 ⢰⡖⣷⣀⣠⡶⢻⡿⠋⠀⠈⢿⣝⠶⣤⡀⣾⠳⡆
+
 ⠘⢷⠈⠉⢁⡴⠋⠀⠀⠀⠀⠀⠙⢷⣌⠉⠁⣼⠃
+
 ⠀⠘⣧⡾⠋⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⠷⣼⠏⠀
